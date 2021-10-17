@@ -1,1 +1,1 @@
-# Laborator-EGC
+# Laborator-EGC Andries Dorin Andrei - 3131B
